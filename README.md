@@ -5,7 +5,7 @@
 
 - 😄 Call me Watin
 
-- 🔭 I’m currently working [@HeH](https://www.heh.be)
+- 🔭 I’m currently studying [@HeH](https://www.heh.be)
 
 - 🌐 [www.valdenis.be](https://www.valdenis.be/)
 
