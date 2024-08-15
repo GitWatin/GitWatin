@@ -5,7 +5,7 @@
 
 - 😄 Call me Watin
 
-- 🔭 I’m currently studying [@HeH](https://www.heh.be)
+- 🔭 I’m currently System engineer in network and security
 
 - 🌐 [www.valdenis.be](https://www.valdenis.be/)
 
